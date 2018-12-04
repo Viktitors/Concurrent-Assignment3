@@ -1,1 +1,1 @@
-haber si voi ha tener k rebentarte e
+Check the image files route
